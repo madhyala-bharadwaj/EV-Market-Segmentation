@@ -1,4 +1,4 @@
-# Strategic Market Segmentation for Electric Vehicle Adoption in India
+# Strategic Market Segmentation for Electric Vehicle Adoption in India: An Analytical Approach
 
 **Author:** Madhyala Bharadwaj
 
